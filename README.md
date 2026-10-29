@@ -6,7 +6,7 @@ En tu evento, tus invitados crean contigo —guiados por el artista— una obra 
 
 - **Inversión:** $700.000 COP (show completo, 1,5 a 2 horas, sin recargo por más horas)
 - **Reserva:** 50 % de anticipo, con mínimo 3 días de anticipación
-- **Cobertura:** toda la costa Caribe; transporte incluido en Ciénaga y Santa Marta
+- **Cobertura:** en todo el país; transporte incluido en Ciénaga y Santa Marta; fuera de ahí, el cliente asume viáticos y hospedaje.
 - **Contacto:** WhatsApp 313 576 0856
 
 ## Sitio publicado
